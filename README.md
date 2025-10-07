@@ -1,6 +1,4 @@
-## Hi there 👋
-
-Product Designer | UI UX Designer | Web & Mobile Design Development
+## Hi there 👋 I Product Designer | UI UX Designer ❤️ Make Web & Mobile Design Development
 
 🎨 I’m here to bring your idea to life. I’ve been working in the field for over five years. I do end-to-end user experience whether you need to update your design system, get feedback on existing products  
 
@@ -11,16 +9,8 @@ Product Designer | UI UX Designer | Web & Mobile Design Development
 ✅ User Interface and User Experience Design  
 ✅ SaaS Products Design  
 ✅ Mobile Applications Design  
-✅ Wireframing and Prototyping 
+✅ Wireframing and Prototyping  
 ✅ Design System Products
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-- 🎨 [Figma](https://www.figma.com/@mahmoudwahieby)
-- 📸 [Instagram](https://www.instagram.com/mahmoudwahieby/)
+🎨 [Figma](https://www.figma.com/@mahmoudwahieby)
+📸 [Instagram](https://www.instagram.com/mahmoudwahieby/)

@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-[![My Skills](https://skillicons.dev/icons?i=figma&theme=dark)](https://skillicons.dev)
+[Figma](https://www.figma.com/@mahmoudwahieby)
+[Instagram](https://www.instagram.com/mahmoudwahieby/)

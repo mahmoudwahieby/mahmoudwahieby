@@ -14,8 +14,8 @@
 
 ➡️
 [Figma](https://www.figma.com/@mahmoudwahieby) 
-[Webflow](https://www.figma.com/@mahmoudwahieby) 
-[Framer](https://www.figma.com/@mahmoudwahieby)  
+[Webflow](https://webflow.com/@mahmoudwahieby) 
+[Framer]()  
 ➡️
 [Youtube](https://www.youtube.com/@mahmoudwahieby) 
 [X,Twitter](https://x.com/mahmoudwahieby) 

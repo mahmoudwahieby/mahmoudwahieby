@@ -11,3 +11,18 @@
 ✅ Mobile Applications Design  
 ✅ Wireframing and Prototyping  
 ✅ Design System Products
+
+➡️
+[Figma](https://www.figma.com/@mahmoudwahieby) 
+[Webflow](https://www.figma.com/@mahmoudwahieby) 
+[Framer](https://www.figma.com/@mahmoudwahieby)  
+➡️
+[Youtube](https://www.youtube.com/@mahmoudwahieby) 
+[X,Twitter](https://x.com/mahmoudwahieby) 
+[Instagram](https://www.instagram.com/mahmoudwahieby/) 
+[Tiktok](https://www.tiktok.com/@mahmoudwahieby) 
+[Linkedin](https://www.linkedin.com/in/mahmoudwahieby/) 
+[Facebook](https://www.facebook.com/MahmoudWahieby)  
+➡️
+[Behance](https://www.behance.net/mahmoudwahieby) 
+[Dribbble](https://dribbble.com/mahmoudwahieby)

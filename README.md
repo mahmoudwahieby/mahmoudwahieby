@@ -16,12 +16,12 @@
 🏗️ [Webflow](https://www.figma.com/@mahmoudwahieby) |
 🏗️ [Framer](https://www.figma.com/@mahmoudwahieby)
 
-🎥 [Youtube](https://www.youtube.com/@mahmoudwahieby) |
-❌ [X](https://x.com/mahmoudwahieby) |
-📸 [Instagram](https://www.instagram.com/mahmoudwahieby/) |
-🎞️ [Tiktok](https://www.tiktok.com/@mahmoudwahieby) |
-💼 [Linkedin](https://www.linkedin.com/in/mahmoudwahieby/) |
-📘 [Facebook](https://www.facebook.com/MahmoudWahieby) |
+[Youtube](https://www.youtube.com/@mahmoudwahieby) |
+[X](https://x.com/mahmoudwahieby) |
+[Instagram](https://www.instagram.com/mahmoudwahieby/) |
+[Tiktok](https://www.tiktok.com/@mahmoudwahieby) |
+[Linkedin](https://www.linkedin.com/in/mahmoudwahieby/) |
+[Facebook](https://www.facebook.com/MahmoudWahieby)
 
-💻 [Behance](https://www.behance.net/mahmoudwahieby) |
-💻 [Dribbble](https://dribbble.com/mahmoudwahieby)
+[Behance](https://www.behance.net/mahmoudwahieby) |
+[Dribbble](https://dribbble.com/mahmoudwahieby)

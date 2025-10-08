@@ -1,4 +1,4 @@
-## Hi there 👋 I Product Designer | UI UX Designer ❤️ Make Web & Mobile Design Development
+## Hi 👋 I Product Designer | UI UX Designer ❤️ Make Web & Mobile Design Development
 
 🎨 I’m here to bring your idea to life. I’ve been working in the field for over five years. I do end-to-end user experience whether you need to update your design system, get feedback on existing products  
 
